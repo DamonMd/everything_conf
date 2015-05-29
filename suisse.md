@@ -9,6 +9,9 @@ aka Svizzera aka Schweiz aka Switzerland
 * Population: 8,061,516 (New York City is at 8,406,000)
 * Area: roughly twice the size of new jersey
 * Invented Milk Chocolate
+* Rated the most expensive country to live in for 2015
+* Not a member of the European Union (though does have agreements)
+* Uses the chf or Swiss Franc as currency 
 
 
 
