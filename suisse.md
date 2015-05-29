@@ -6,7 +6,7 @@ aka Svizzera aka Schweiz aka Switzerland
 
 ## Quick Facts
 * Founded in 1291
-* Population: 8,061,516 (New York is at 8,406,000)
+* Population: 8,061,516 (New York City is at 8,406,000)
 * Area: roughly twice the size of new jersey
 * Invented Milk Chocolate
 
@@ -15,19 +15,19 @@ aka Svizzera aka Schweiz aka Switzerland
 
 ##Firstly, Switzerland != Sweden
 
-###Swiss:
+###Switzerland:
 ![image](http://longislandtennismagazine.com/sites/default/files/imagecache/400xY/Swiss_Flag.GIF)
 
 ###Sweden:
 ![image](http://www.polyvore.com/cgi/img-thing?.out=jpg&size=l&tid=7862266)
 
-###Swiss:
+###Switzerland:
 ![image](http://i.telegraph.co.uk/multimedia/archive/01987/switzerland_1987449c.jpg)
 
 ###Sweden: 
 ![image](http://img2.wikia.nocookie.net/__cb20100711135419/muppet/images/9/9c/Swedish_poser.jpg)
 
-###Swiss:
+###Switzerland:
 ![image](https://ucsocietyofsaintpaul.files.wordpress.com/2013/01/st-bernards.jpg)
 
 ###Sweden:
