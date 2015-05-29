@@ -1,7 +1,7 @@
 # Suisse 
 aka Svizzera aka Schweiz aka Switzerland
 
-![image](http://wikitravel.org/upload/en/thumb/f/fa/Switzerland_in_its_region.svg/250px-Switzerland_in_its_region.svg.png)
+![image](http://www.beautifulworld.com/images/maps/europe/switzerland-europe-map.jpg)
 
 
 ## Quick Facts
@@ -39,7 +39,7 @@ aka Svizzera aka Schweiz aka Switzerland
 ### It is A Swiss Cheese, Emmental or Emmenthaler
 Switzerland actually has many kinds of cheese. 
 Enjoy some of my favorites:
-Gruyere and Annenzeller 
+Gruyère and Appenzeller 
 
 ##People in Switzerland do not Speak "Swiss"
 ###There are actually 4 official languages in Switzerland:
